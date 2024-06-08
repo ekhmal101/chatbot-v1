@@ -7,7 +7,7 @@ Time open:
 Everyday from 9am to 6pm (Except wednesday)
 
 Website Link:
-(https://chocolate-cakes-kijjl6g.gamma.site/)
+(https://blissful-bites-bakery-hzi1p5j.gamma.site/)
 
 Location:
 Street - Jalan Tinju 13/50, Seksyen 13, 40100 Shah Alam
